@@ -10,7 +10,7 @@ Lantas, bagaimana kronologi kasus **Timothy Ronald** hingga pelapor menjalani BA
 
 Pelapor dalam kasus dugaan **penipuan investasi kripto Timothy Ronald** dilaporkan telah memenuhi panggilan penyidik untuk menjalani **BAP di Polda Metro Jaya**. Pemeriksaan ini merupakan bagian dari proses penyelidikan awal yang dilakukan kepolisian.
 
-Dalam proses BAP tersebut, pelapor dimintai keterangan terkait kronologi investasi kripto yang dijalani, komunikasi di dalam komunitas, hingga dugaan kerugian yang dialami. Video pelapor sedang di wawancara wartawan dapat di lihat pada link di bawah:
+Dalam proses BAP tersebut, pelapor dimintai keterangan terkait kronologi investasi kripto yang dijalani, komunikasi di dalam komunitas, hingga dugaan kerugian yang dialami. Video pelapor sedang di wawancara wartawan dapat di lihat pada link di berikut:
 👉 ** [Tonton di sini](https://bit.ly/4bwj8B4)**
 
 ---
