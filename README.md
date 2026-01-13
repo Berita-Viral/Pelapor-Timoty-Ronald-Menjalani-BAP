@@ -12,7 +12,7 @@ Pelapor dalam kasus dugaan **penipuan investasi kripto Timothy Ronald** dilapork
 
 Dalam proses BAP tersebut, pelapor dimintai keterangan terkait kronologi investasi kripto yang dijalani, komunikasi di dalam komunitas, hingga dugaan kerugian yang dialami. Informasi lebih lanjut terkait proses pemeriksaan ini dapat dibaca melalui tautan berikut:
 
-👉 https://bit.ly/4bwj8B4
+👉 ** [Tonton di sini](https://bit.ly/4bwj8B4)**
 
 ---
 
